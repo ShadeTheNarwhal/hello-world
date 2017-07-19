@@ -1,2 +1,2 @@
 # hello-world
-The tutorial said that I had to do this. Not sure if I'll use it afterwards.
+Alright, the tutorial stated that I had to write a bit about myself. Well, I'm ShadeTheNarwhal, but just call me Shade for short. I live in Canada, I have two cats, and Mountain Dew is my personal favourite among the world of canned drinks. I created this account out of boredom, but if I use it correctly I will be able to make it easier for my friends and family to keep track of information regarding fictional media that they enjoy, which is something that they have difficulty doing (rather, they have difficulty doing it in my eyes, I have total recall memory so I remember everything, so to me everyone can barely remember anything at all).
